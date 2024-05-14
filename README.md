@@ -5,4 +5,4 @@
 - ⚡ Fun fact:There are two ways to write error-free programs;only the third one works.
 - 🌱 Hardworking, Attentive Listener, Self-Motivated
 - 🔭 I'm currently more into the programming.
-- 👋 Connect with me Gmail-gunjimounika14@gmail.com
+- 👋 Connect with me Gmail- gunjimounika14@gmail.com
